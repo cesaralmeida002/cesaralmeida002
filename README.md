@@ -1,6 +1,6 @@
 ## 👋 Hello Word, sou o César Almeida ☕
 
-- Acredito que só a educação pode mudar vidas, e a tecnologia é a ferramenta.<br>
+- Acredito que só a educação pode mudar vidas, e a tecnologia é a principal ferramenta.<br>
 - Hoje, estou aberto as oportunidades do mercado. Visita meu linkedin e vamos bater um papo.👇<br><br>
 
 ## 💬 Meus Contatos
